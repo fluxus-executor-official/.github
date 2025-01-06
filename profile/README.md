@@ -4,11 +4,11 @@ Fluxus is a popular Roblox script executor used by players to run scripts in Rob
 
 Roblox, the dynamic platform that blends gaming and creation, has captured the imaginations of millions worldwide. Within this vibrant universe, players can not only enjoy a plethora of games but also unleash their creativity by designing their own experiences. However, for those seeking to push the boundaries of gameplay, enter Fluxus Executor – a robust scripting tool that unlocks a realm of possibilities within Roblox.
 
-## ⏬🌐🌐📌⬇ [DOWNLOAD Fluxus Executor APK](https://newsloopy.com/fluxus-executor/) ⬇📌🌐🌐⏬
+## ⏬🌐🌐📌⬇ [DOWNLOAD Fluxus Executor APK](https://fluxusgeek.com/) ⬇📌🌐🌐⏬
 
 ![fluxus exectuoe](https://github.com/user-attachments/assets/be7f3fd8-a3a2-4124-a59a-4640374900aa)
 |:-------------------------------------------------:|
-[![download-now](https://github.com/user-attachments/assets/22657e67-9d2d-46af-a41a-5d365d2ddc1f)](https://newsloopy.com/fluxus-executor/)  |
+[![download-now](https://github.com/user-attachments/assets/22657e67-9d2d-46af-a41a-5d365d2ddc1f)](https://fluxusgeek.com/)  |
 | *Platform: *Android 4.0+                     
 | *Size: *532.71 Mb                                                  
 | *Version: *2.654.    |
